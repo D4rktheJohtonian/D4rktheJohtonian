@@ -25,10 +25,11 @@ Likes : Playing games, drawing, sleeping, biology.
 - The Legend of Zelda✨
 - God Of War ⚔️
 
-🎮 ︶꒦꒷♡ **Games I Usually Play** ♡꒷꒦︶ 🎮
+🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
 
 - Pokémon TCG Pocket Edition (Gold / Hibiki)
 - Ponytown (D4rk_TheJohtonian_)
+- Discord (jxst_d4rk_l1nk)
 - Roblox (rarely ; OnlyFellow_LAHplayz)
 
   ![tumblr_ebe45fdb22b9d22974eed2b43a6eda28_deed719c_1280](https://github.com/user-attachments/assets/21554f4c-2ef4-4200-a033-ab9ac54ae0b9)
@@ -54,17 +55,19 @@ Likes : Playing games, drawing, sleeping, biology.
 
 ↳- **Interactions** -༉‧₊˚✧
 
-*If I interact with you, one of them is because...* 🎤
+*If I interact with you, one of them is either because...* 🎤
 
 - I am interested in you.
 - I have no one to talk to.
 - I like your personality/avatar.
 
-*If I don't respond or interact back to you, one of them is because...* 💭
+*If I don't respond or interact back to you, one of them is either because...* 💭
 - I'm afk.
 - I'm opening other app.
 - I'm drawing/making characters.
 - I accidentally fall asleep (15% chances).
+
+  *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
