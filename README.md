@@ -20,7 +20,7 @@ Likes : Playing games, drawing, sleeping, biology.
 
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
 
-- Pokémon 💖
+- Pokémon 💖 (my current hyperfixation!)
 - SAW franchise 🔪
 - The Legend of Zelda✨
 - God Of War ⚔️
@@ -63,6 +63,7 @@ Likes : Playing games, drawing, sleeping, biology.
 
 *If I don't respond or interact back to you, one of them is either because...* 💭
 - I'm afk.
+- I'm too shy to respond at the moment.
 - I'm opening other app.
 - I'm drawing/making characters.
 - I accidentally fall asleep (15% chances).
