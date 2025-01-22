@@ -8,7 +8,7 @@
 
 Name you can call me : Dark / Gold
 
-Age : 14
+Age : 4-teen
 
 Nationality : IDN 🇮🇩 💞
 
