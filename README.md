@@ -16,6 +16,10 @@ Fav colours : Golden, black, crimson, white, and cerulean.
 
 Likes : Playing games, drawing, sleeping, biology.
 
+Gen 2 enthusiast! (Cyndaquil my boy <3)
+
+PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
+
 ![pokemon-ethan](https://github.com/user-attachments/assets/d548479b-82bb-4e0f-aed9-f09376726b9a)
 
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
