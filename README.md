@@ -25,7 +25,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
 
 - Pokémon 💖 (my current hyperfixation!)
-- SAW franchise 🔪
+- SAW franchise 🔪 (possible 2nd hyperfixation)
 - The Legend of Zelda✨
 - God Of War ⚔️
 
@@ -41,7 +41,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
 - Ethan, Red, Calem, Erika, Colress, Steven, Umbreon, Cyndaquil, Celebi, Victini (*Pokémon*)
-- William Easton, Logan Nelson, Mark Hoffman, Daniel Rigg (*SAW*)
+- William Easton, Logan Nelson, Mark Hoffman, Lawrence Gordon, Daniel Rigg (*SAW*)
 - Dark Link, Ravio, Midna, Twilight Princess Link (*The Legend of Zelda*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
 
@@ -59,6 +59,8 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 ↳- **Interactions** -༉‧₊˚✧
 
+*C+H is welcome! (Especially if you're Blue/Red/Ethan :3). I won't hesitate to block if you're acting inappropriate and saying weird things.*
+
 *If I interact with you, one of them is either because...* 🎤
 
 - I am interested in you.
@@ -73,6 +75,15 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - I accidentally fall asleep (15% chances).
 
   *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
+
+*DNI :*
+
+- Basic DNI crits.
+- If you're under 12 and 21+.
+- If you're acting inappropriate and saying weird things.
+- You like weird ships. (ex : Red x Prof. Oak 💀).
+- Hazbin Hotel/Helluva Boss fans, The Owl House fans (I have some problems /w TOH, don't get me wrong).
+
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
