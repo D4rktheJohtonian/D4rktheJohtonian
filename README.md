@@ -76,14 +76,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
   *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
 
-*DNI :*
-
-- Basic DNI crits.
-- If you're under 13 and 21+.
-- If you're acting inappropriate and saying weird things.
-- You like weird ships. (ex : Red x Prof. Oak 💀).
-- Journeyshippers (I hate Ash x Goh).
-- Hazbin Hotel/Helluva Boss fans, The Owl House fans (I have some problems /w TOH).
+*For DNI crits check my strawpage.*
 
 **NOTE :**
 
