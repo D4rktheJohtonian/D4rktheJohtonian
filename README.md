@@ -76,13 +76,15 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
   *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
 
-*For DNI crits check my strawpage.*
+*DNI and BYI check my strawpage.*
 
 **NOTE :**
 
 I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journey Ash. They sucks.
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
+
+Also please check my strawpage/atabook and maybe gimme some messages/drawing!
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
