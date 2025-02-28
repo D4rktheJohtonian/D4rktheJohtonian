@@ -6,7 +6,7 @@
 
 💫 ↳ ❝ [**Basic Informations**] ¡! ❞ 💫
 
-Name you can call me : Dark / Gold
+Name you can call me : Dark / Ethan / Gold (I pref Ethan more tho)
 
 Age : 4-teen
 
