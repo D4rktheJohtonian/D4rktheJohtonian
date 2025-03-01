@@ -6,7 +6,7 @@
 
 💫 ↳ ❝ [**Basic Informations**] ¡! ❞ 💫
 
-Name you can call me : Dark / Ethan / Gold (I pref Ethan more tho)
+Name you can call me : Dark / Ethan
 
 Age : 4-teen
 
@@ -14,7 +14,7 @@ Nationality : IDN 🇮🇩 💞
 
 Fav colours : Golden, black, crimson, white, and cerulean.
 
-Likes : Playing games, drawing, sleeping, biology.
+Likes : Playing games, drawing, sleeping, biology, Greek mythology, psychological horror, and gore (PLS I beg you to lmk if I make you uncomfortable).
 
 Gen 2 enthusiast! (Cyndaquil my boy <3)
 
@@ -47,7 +47,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
-  I'm multilingual! ✨
+  Wouldn't say I'm the best at it tho.
   
   *Speak Fluently* : Indonesia, English 🇮🇩🇬🇧
   
