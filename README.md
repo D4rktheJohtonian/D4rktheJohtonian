@@ -26,14 +26,14 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 - Pokémon 💖 (my current hyperfixation!)
 - SAW franchise 🔪 (possible 2nd hyperfixation?)
-- God of War ⚔️
+- God of War ⚔️ (No way it's going to be my 3rd hyperfixation)
 - The Legend of Zelda✨
 
 🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
 
 - Pokémon TCG Pocket Edition (Gold / Hibiki)
-- Ponytown (D4rk The Johtonian)
-- Discord (d4rk_thejohtonian_)
+- Ponytown (D4rk / Ethan)
+- Discord (jxst_d4rkur1nkuu_)
 - Roblox (rarely ; OnlyFellow_LAHplayz)
 
   ![tumblr_ebe45fdb22b9d22974eed2b43a6eda28_deed719c_1280](https://github.com/user-attachments/assets/21554f4c-2ef4-4200-a033-ab9ac54ae0b9)
