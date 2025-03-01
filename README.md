@@ -26,8 +26,8 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 - Pokémon 💖 (my current hyperfixation!)
 - SAW franchise 🔪 (possible 2nd hyperfixation?)
+- God of War ⚔️
 - The Legend of Zelda✨
-- God Of War ⚔️
 
 🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
 
@@ -59,7 +59,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 ↳- **Interactions** -༉‧₊˚✧
 
-*C+H is welcome! (Especially if you're Blue/Red/Ethan :3). I block freely.*
+*C+H is welcome! (Especially if you're Blue/Red/Ethan :3). I block freely Idgaf.*
 
 *If I interact with you, one of them is either because...* 🎤
 
@@ -75,6 +75,8 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - I accidentally fall asleep (15% chances).
 
   *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
+
+  *I rarely use abbreviation and talk too formal sometimes so forgive me if I sound too dry.*
 
 *DNI and BYI check my strawpage.*
 
