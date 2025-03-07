@@ -1,7 +1,10 @@
 # ೃ⁀➷ Introduction! ‧͙⁺˚*･༓☾
 ### By D4rktheJohtonian✨
+
+![Spr_B2W2_Red](https://github.com/user-attachments/assets/751ec9c7-3f29-42c9-b072-b9e390449bb9)
+![Spr_HGSS_Ethan](https://github.com/user-attachments/assets/3d72d999-62d1-48c0-9cf8-bb9c1b554412)
 ![celebi](https://github.com/user-attachments/assets/27d43f70-7932-47f3-842b-9513d179dac2)
-![pokeball](https://github.com/user-attachments/assets/0701c5be-1f66-4784-9554-7c6f6952ff9f)![umbreon](https://github.com/user-attachments/assets/5e60b0ec-17a8-4697-ae2f-5c2949009de9)
+![umbreon](https://github.com/user-attachments/assets/5e60b0ec-17a8-4697-ae2f-5c2949009de9)
  
 
 💫 ↳ ❝ [**Basic Informations**] ¡! ❞ 💫
@@ -25,8 +28,8 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
 
 - Pokémon 💖 (my current hyperfixation!)
-- SAW franchise 🔪 (possible 2nd hyperfixation?)
-- God of War ⚔️ (No way it's going to be my 3rd hyperfixation)
+- SAW franchise 🔪
+- God of War ⚔️ (No way I'm going to be obsessed with this again-)
 - The Legend of Zelda✨
 
 🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
@@ -59,7 +62,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 ↳- **Interactions** -༉‧₊˚✧
 
-*C+H is welcome! (Especially if you're Blue/Red/Ethan :3). I block freely Idgaf.*
+*C+H is welcome! (Especially if you're  cosplaying as Blue/Red/Ethan :3). I block freely Idgaf.*
 
 *If I interact with you, one of them is either because...* 🎤
 
@@ -91,6 +94,9 @@ Also please check my strawpage/atabook and maybe gimme some messages/drawing!
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
   Byee~! Have a nice daayyy. 🌻🕊️
+  
 
+ ![Spr_HGSS_Silver](https://github.com/user-attachments/assets/4a959e17-d894-48e7-941a-0803acae42b5)
+![Spr_B2W2_Blue](https://github.com/user-attachments/assets/1158366b-86d0-4c8f-9816-4dd06328fa38)
   ![cyndaquil](https://github.com/user-attachments/assets/1e2e3712-442b-4536-87d0-58c0fd4f3c8b)
 ![pokeball](https://github.com/user-attachments/assets/a310bbf8-0424-443e-86c2-57e634c02f86)
