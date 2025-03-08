@@ -72,7 +72,6 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 *If I don't respond or interact back to you, one of them is either because...* 💭
 - I'm afk.
-- I'm too shy to respond at the moment.
 - I'm opening other app.
 - I'm drawing/making characters.
 - I accidentally fall asleep (15% chances).
@@ -90,6 +89,8 @@ I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journ
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also please check my strawpage/atabook and maybe gimme some messages/drawing!
+
+There's a *HUGE* possibility that I may kin for Ethan. So feel free to call me Ethan if you want! (If you're one of my friend and also kin him, I'm really sorry I swear 😭🙏🏼).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
