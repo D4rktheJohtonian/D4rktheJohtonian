@@ -88,9 +88,9 @@ I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journ
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
-Also please check my strawpage/atabook and maybe gimme some messages/drawing!
+Also sign my strawpage/atabook and gimme some messages! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan. I'm literally him, so feel free to call me Ethan if yo want! ^^ (If you're one of my friend and also kin him, I'm really sorry I swear 😭🙏🏼).
+I *fictkin* for Ethan. I'm literally him, so feel free to call me Ethan if you want! ^^ (If you're one of my friend and also kin him, I'm really sorry I swear 😭🙏🏼).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
