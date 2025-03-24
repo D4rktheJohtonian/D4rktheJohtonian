@@ -28,9 +28,10 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
 
 - Pokémon 💖 (my current hyperfixation!)
-- SAW franchise 🔪
+- The Mandela Catalogue 🔪
 - God of War ⚔️ (No way I'm going to be obsessed with this again-)
 - The Legend of Zelda✨
+- SAW franchise 🧩
 
 🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
 
@@ -47,6 +48,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - William Easton, Logan Nelson, Mark Hoffman, Lawrence Gordon, Daniel Rigg (*SAW*)
 - Dark Link, Ravio, Midna, Twilight Princess Link (*The Legend of Zelda*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
+- Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
@@ -62,7 +64,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 ↳- **Interactions** -༉‧₊˚✧
 
-*C+H is welcome! (Especially if you're  cosplaying as Blue/Red/Ethan :3). I block freely Idgaf.*
+*C+H is welcome! (Especially if you're  cosplaying as Blue/Red/Ethan :3). I block if I feel uncomfortable Idgaf.*
 
 *If I interact with you, one of them is either because...* 🎤
 
@@ -74,7 +76,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - I'm afk.
 - I'm opening other app.
 - I'm drawing/making characters.
-- I accidentally fall asleep (15% chances).
+- I accidentally fall asleep (15% chances, it happens to me 3 times bruh).
 
   *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
 
