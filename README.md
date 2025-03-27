@@ -31,12 +31,11 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - The Mandela Catalogue 🔪
 - God of War ⚔️ (No way I'm going to be obsessed with this again-)
 - The Legend of Zelda✨
-- SAW franchise 🧩
 
 🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
 
 - Pokémon TCG Pocket Edition (Gold / Hibiki)
-- Ponytown (D4rk / Ethan)
+- Ponytown (Ethan / D4rk 🌟)
 - Discord (jxst_d4rkur1nkuu_)
 - Roblox (rarely ; OnlyFellow_LAHplayz)
 
@@ -44,8 +43,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
-- Ethan, Red, Calem, Erika, Colress, Steven, Umbreon, Cyndaquil, Celebi, Victini (*Pokémon*)
-- William Easton, Logan Nelson, Mark Hoffman, Lawrence Gordon, Daniel Rigg (*SAW*)
+- Ethan, Red, Calem, Erika, Colress, Steven, Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott (*Pokémon*)
 - Dark Link, Ravio, Midna, Twilight Princess Link (*The Legend of Zelda*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
 - Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
@@ -74,7 +72,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 *If I don't respond or interact back to you, one of them is either because...* 💭
 - I'm afk.
-- I'm opening other app.
+- I'm opening other app/offtab.
 - I'm drawing/making characters.
 - I accidentally fall asleep (15% chances, it happens to me 3 times bruh).
 
