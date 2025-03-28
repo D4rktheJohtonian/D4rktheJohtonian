@@ -84,7 +84,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 **NOTE :**
 
-I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journey Ash. They sucks.
+I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journey vers. Ash. They sucks.
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
