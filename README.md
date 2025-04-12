@@ -43,20 +43,14 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
-- Ethan, Red, Calem, Erika, Colress, Steven, Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott (*Pokémon*)
+- Ethan, Red, Calem, Erika, Colress, Steven, Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, and more.. (*Pokémon*)
 - Dark Link, Ravio, Midna, Twilight Princess Link (*The Legend of Zelda*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
 - Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
-  Wouldn't say I'm the best at it tho.
-  
-  *Speak Fluently* : Indonesia, English 🇮🇩🇬🇧
-  
-  *Speak a little* : German, French 🇩🇪🇫🇷
-
-  *Still learning* : Japanese, Greek 🇯🇵🇬🇷
+  You might have read this before. I mainly speak English and Indonesia. I can also speak German and French, tho not alot, just the basics :3. I'm learning Japanese and Greek. That's it.
 
  ![umbreon-pokemon](https://github.com/user-attachments/assets/25bde207-6dcc-4fd5-a512-a13973f62098)
 
@@ -80,7 +74,6 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
   *I rarely use abbreviation and talk too formal sometimes so forgive me if I sound too dry.*
 
-*DNI and BYI check my strawpage.*
 
 **NOTE :**
 
@@ -90,7 +83,7 @@ For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also sign my strawpage/atabook and gimme some messages! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan. Feel free to call me Ethan if you want! ^^ (What if there are doubles 🤔).
+I *fictkin* for Ethan. Feel free to call me Ethan if you want! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
