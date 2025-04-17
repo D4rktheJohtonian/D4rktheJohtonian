@@ -17,7 +17,7 @@ Nationality : IDN 🇮🇩 💞
 
 Fav colours : Golden, black, crimson, white, and cerulean.
 
-Likes : Playing games, drawing, sleeping, biology, Greek mythology, psychological horror, and gore (PLS I beg you to lmk if I make you uncomfortable).
+Likes : Playing games, drawing, sleeping, biology, Greek mythology, and psychological horror.
 
 Gen 2 enthusiast! (Cyndaquil my boy <3)
 
@@ -29,10 +29,10 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 - Pokémon 💖 (my current hyperfixation!)
 - The Mandela Catalogue 🔪
-- God of War ⚔️ (No way I'm going to be obsessed with this again-)
+- God of War ⚔️
 - The Legend of Zelda✨
 
-🎮 ︶꒦꒷♡ **Games I Play** ♡꒷꒦︶ 🎮
+🎮 ︶꒦꒷♡ **Others** ♡꒷꒦︶ 🎮
 
 - Pokémon TCG Pocket Edition (Gold / Hibiki)
 - Ponytown (Ethan / D4rk 🌟)
