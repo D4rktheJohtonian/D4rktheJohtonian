@@ -36,7 +36,6 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 - Pokémon TCG Pocket Edition (Gold / Hibiki)
 - Ponytown (Ethan / D4rk 🌟)
-- Discord (jxst_d4rkur1nkuu_)
 - Roblox (rarely ; OnlyFellow_LAHplayz)
 
   ![tumblr_ebe45fdb22b9d22974eed2b43a6eda28_deed719c_1280](https://github.com/user-attachments/assets/21554f4c-2ef4-4200-a033-ab9ac54ae0b9)
@@ -81,7 +80,7 @@ I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journ
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
-Also sign my strawpage/atabook and gimme some messages! (strawpage currently having problems receiving drawing so yeah-)
+Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
 I *fictkin* for Ethan. Feel free to call me Ethan if you want! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
