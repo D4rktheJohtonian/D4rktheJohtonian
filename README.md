@@ -80,7 +80,7 @@ I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journ
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
-Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
+Also sign my ata/strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
 I *fictkin* for Ethan. Feel free to call me Ethan if you want! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
