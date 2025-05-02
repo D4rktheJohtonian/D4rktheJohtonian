@@ -42,7 +42,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
-- Ethan, Red, Calem, Erika, Colress, Steven, Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, and more.. (*Pokémon*)
+- Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
 - Dark Link, Ravio, Midna, Twilight Princess Link (*The Legend of Zelda*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
 - Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
