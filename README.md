@@ -30,7 +30,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - Pokémon 💖 (my current hyperfixation!)
 - The Mandela Catalogue 🔪
 - God of War ⚔️
-- The Legend of Zelda✨
+- Guts and Blackpowder💥
 
 🎮 ︶꒦꒷♡ **Others** ♡꒷꒦︶ 🎮
 
@@ -43,9 +43,9 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
 - Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
-- Dark Link, Ravio, Midna, Twilight Princess Link (*The Legend of Zelda*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
 - Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
+- I main Prussian Seaman. If Prussia is not available, then usually use French or British, or just choose what's available. (*Guts and Blackpowder*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
@@ -67,7 +67,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - I'm afk.
 - I'm opening other app/offtab.
 - I'm drawing/making characters.
-- I accidentally fall asleep (15% chances, it happens to me 3 times bruh).
+- I accidentally fall asleep (15% chances, it happens to me 5 times bruh).
 
   *If my responses is too slow, then it's either I'm trying to think of a response or I'm talking to someone else in rl.*
 
@@ -80,7 +80,7 @@ I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journ
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
-Also sign my ata/strawpage! (strawpage currently having problems receiving drawing so yeah-)
+Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
 I *fictkin* for Ethan. Feel free to call me Ethan if you want! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
