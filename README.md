@@ -82,7 +82,7 @@ For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan. Feel free to call me Ethan if you want! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
+I *fictkin* for Ethan (and all his Poképasta vers., especially Blake) and Slingshot! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
