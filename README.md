@@ -9,7 +9,7 @@
 
 💫 ↳ ❝ [**Basic Informations**] ¡! ❞ 💫
 
-Name you can call me : Dark / Ethan
+Names you can call me : Dark, Ethan, Slingshot, or Karl
 
 Age : 4-teen
 
@@ -17,7 +17,7 @@ Nationality : IDN 🇮🇩 💞
 
 Fav colours : Golden, black, crimson, white, and cerulean.
 
-Likes : Playing games, drawing, sleeping, biology, Greek mythology, and psychological horror.
+Likes : Playing games, drawing, sleeping, biology, history of Napoleonic Wars (or wars in general), Greek mythology, and psychological horror.
 
 Gen 2 enthusiast! (Cyndaquil my boy <3)
 
@@ -45,7 +45,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
 - Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
 - Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
-- I main Prussian Seaman. If Prussia is not available, then usually use French or British, or just choose what's available. (*Guts and Blackpowder*)
+- I main Prussian Seaman or Musician. If Prussia is not available, then usually use French or British, or just choose what's available. (*Guts and Blackpowder*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
@@ -82,7 +82,7 @@ For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan (and all his Poképasta vers., especially Blake) and Slingshot! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
+I *fictkin* for Ethan (and all his Poképasta vers., especially Blake), Slingshot, and Karl/1. Garde zu fuß Officer! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
