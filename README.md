@@ -1,13 +1,30 @@
 # *"Salvation lies across the river."*
 
-##### The Battle of the Nations, 16-19 October, 1813.
+### ${\textsf{\color{#B90E0A} The Battle of the Nations, 16-19 October, 1813. }}$
 
 ![HALAH NYOCOT](https://github.com/user-attachments/assets/7b0b2b2d-0585-4600-ad1c-b32e3af6d417)
 
-#### "Oh, ne'er shall I forget the night where the stars were bright above me and gently lent their silverly light when first she vowed to love me. But now I'm bound to Brighton Camp - Kind heaven, then pray guide me, and send me safely back again... To *the Girl I Left Behind Me*."
+<p align="center">
+<b>"Oh, ne'er shall I forget the night where the stars were bright above me and gently lent their silverly light when first she vowed to love me. But now I'm bound to Brighton Camp - Kind heaven, then pray guide me, and send me safely back again... To the <i>Girl I Left Behind Me.</i>."</b>
 
-![Barry](https://github.com/user-attachments/assets/7d264d43-4455-467e-8efd-43b540007f04)
+<p align="center">
+<img src="https://github.com/user-attachments/assets/7d264d43-4455-467e-8efd-43b540007f04" width=700>
 
-#### *"Beende es für Preußen."*
+<p align="center">
+<i><b>"Beende es für Preußen."</b></i>
 
-![Kaub](https://github.com/user-attachments/assets/2ca58b82-1493-4870-8d66-46db7007b2a2)
+<p align="center">
+${\textsf{\color{#B90E0A} ──────⊹ ⊱ ✠︎ ⊰ ⊹────── }}$
+
+<p align="center">
+<i><b>"Herr Feldmarschall?.."</b></i>
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/2ca58b82-1493-4870-8d66-46db7007b2a2" width=700>
+
+<p align="center">
+${\textsf{\color{#FDDE6C} C+H please, don't be shy, mate! :3}}$ 
+
+<p align="center">
+${\textsf{\color{#FDDE6C} Pokémon, Guts and Blackpowder, Phighting!, The Mandela Catalogue, and SCP Foundation are my main things. Interact if we share interest!
+}}$ 
