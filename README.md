@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/d535f772-57b3-4877-96f1-590e2c00e808" width=400> <img src="https://github.com/user-attachments/assets/ea2a0e49-8ca6-4c64-908e-b2201d6b9980" width=400>
+<img src="https://github.com/user-attachments/assets/d535f772-57b3-4877-96f1-590e2c00e808" width=300> <img src="https://github.com/user-attachments/assets/ea2a0e49-8ca6-4c64-908e-b2201d6b9980" width=300>
 
 # *"Salvation lies across the river."*
 
